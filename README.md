@@ -1,0 +1,1 @@
+# impactos_dolar_trigo_brasil
